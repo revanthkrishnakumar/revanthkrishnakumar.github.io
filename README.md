@@ -1,2 +1,0 @@
-# revanthkrishnakumar.github.io
-Profile
